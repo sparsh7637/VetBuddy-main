@@ -64,3 +64,9 @@ VetBuddy leverages **AI** to create a streamlined, error-free, and efficient eco
 ### ❤️ **Thank You!**
 Let’s revolutionize veterinary care together!  
 **Team VetBuddy** 🐾
+
+![image_2025-01-25_175028725.png](https://cdn.dorahacks.io/static/files/1949d680e183af593b1c34e4f9ea0da0.png)![image_2025-01-25_175109397.png](https://cdn.dorahacks.io/static/files/1949d68ac6f88d27e2388b9452d8d100.png)
+
+![image_2025-01-25_175132323.png](https://cdn.dorahacks.io/static/files/1949d6905e5a66a04dfa012417ea08da.png)
+
+![image_2025-01-25_175203643.png](https://cdn.dorahacks.io/static/files/1949d69804dbdcba78bcd0b454f8103d.png)
